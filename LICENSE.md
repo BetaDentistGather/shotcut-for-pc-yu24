@@ -1,4 +1,4 @@
-# 
+# Enhance Shotcut for PC | Shotcut for Windows with ultimate Shotcut for PC | Shotcut for Windows Addon | collaboration-tools + AI-enhanced-editing, the #1 addon. Includes
 
 
 
